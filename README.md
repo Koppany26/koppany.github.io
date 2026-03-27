@@ -1,0 +1,2 @@
+# koppany.github.io
+ADATVIZUALIZACIO
